@@ -6,3 +6,4 @@ https://www.youtube.com/@centralcoastoffgrid
 
 # Engineering:
 - [HHO Neutral Plates Explained](https://youtu.be/lDjyIvza6Yc)
+- [Tips For Building An Efficient Dry Cell](https://youtu.be/OmXHhVh_nkY)
