@@ -7,4 +7,11 @@
 - https://youtu.be/pX6xRurlaHs
 - https://youtu.be/WDjnPMji9YU
 - https://youtu.be/X-LkPf_IQrI
-- 
+- https://youtu.be/iM7vtSvR9yA
+- https://youtu.be/NkQTO_X4m8A
+- https://youtu.be/QtlVJdrtbAM
+- https://youtu.be/AraM6xrFtjU
+- https://youtu.be/36lEXocd1BM
+- https://youtu.be/n3dborjNIBE
+- https://youtu.be/8FBdQPbgldM
+- https://youtu.be/WP3hy0t_0C4
