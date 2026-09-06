@@ -6,3 +6,5 @@ https://m.youtube.com/@ThinkingandTinkering
 - [1256 Urea Electrolysis For Hydrogen Production](https://youtu.be/LaT5PZixcV0)
 - [DIY Safe Hydrogen Storage](https://youtu.be/7LN1iD6fR2E)
 - [Hydrogen From Graphite And Urea](https://youtu.be/ArEKafd0oBM)
+- [Improving A Hydrogen Generator](https://youtu.be/cQYRnuz1p-M)
+- [
