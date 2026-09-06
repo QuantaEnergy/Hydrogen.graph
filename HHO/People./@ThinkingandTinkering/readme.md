@@ -4,3 +4,5 @@ https://m.youtube.com/@ThinkingandTinkering
 - [HHO Torch Tear Down and Use](https://youtu.be/sA3esp0hBw0)
 - [Super Efficient Graphite Dry Cell Hydrogen Generator](https://youtu.be/CuZ5WxYwl4g)
 - [1256 Urea Electrolysis For Hydrogen Production](https://youtu.be/LaT5PZixcV0)
+- [DIY Safe Hydrogen Storage](https://youtu.be/7LN1iD6fR2E)
+- 
