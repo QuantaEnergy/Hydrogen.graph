@@ -8,3 +8,4 @@ https://m.youtube.com/@ThinkingandTinkering
 - [Hydrogen From Graphite And Urea](https://youtu.be/ArEKafd0oBM)
 - [Improving A Hydrogen Generator](https://youtu.be/cQYRnuz1p-M)
 - [2194 Hydrogen On Demand - Improvements And A Possible Conspiracy](https://youtu.be/Ef79fV-jEW0)
+- [Cheap And Easy Hydrogen (Brown's Gas) Generator](https://youtu.be/cNTMWhMWQAA)
